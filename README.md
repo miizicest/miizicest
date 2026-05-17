@@ -5,7 +5,7 @@
 <img width="536" height="467" alt="Image" src="https://github.com/user-attachments/assets/f6d20e69-da8d-4556-9642-bc9c9e18fd0d" />
 
 ######
-[Ata](https://pastrydishes.atabook.org) [Rentry](https://rentry.co/eyeCandly)
+[Ata](https://diorama.atabook.org) [Rentry](https://rentry.co/eyeCandly)
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&cover_image=true&theme=novatorem&show_offline=false&background_color=b4b5a0&interchange=false&profanity=false&bar_color=b4b5a0&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31xn4pypddcttzpsrp536ahmsxby&redirect=true)
 
