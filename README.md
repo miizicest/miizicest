@@ -1,8 +1,8 @@
    <div align="center">
 
-𝘈rtcreds　　;　　ddlrepaytt on 　𝘗int `ㅅ´
+𝘈rtcreds　　;　　ddlrepaytt on 　𝘗int !
 ####
-[𝙍entry](https://rentry.co/colorfool)　　◡◡　　[𝘿iscd](https://discord.gg/yVSkfNya)　　◡◡　　[𝙋rnspage](https://en.pronouns.page/@C0lorfool)
+[𝙍entry](https://rentry.co/colorfool)　　◡◡　　[𝘿iscd](https://discord.gg/yVSkfNya)　　◡◡　　[𝙋rnspage](https://en.pronouns.page/@C0lorfool)　　◡◡　　[新𝘽ook](https://colorfool.atabook.org)
 
 <img width="500" alt="Image" src="https://github.com/user-attachments/assets/32c17773-7be5-493b-8644-00933ab70b73" />
 
