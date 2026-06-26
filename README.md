@@ -12,4 +12,4 @@
 ###
    <div align="left">
       
-   [dⁱˢᶜᵒʳᵈ](https://discord.gg/1411668551097647208)　　𓈒　　[prnsᵖᵃᵍᵉ](https://en.pronouns.page/@arrwz)
+   [dⁱˢᶜᵒʳᵈ](https://discord.gg/fmFBeyZS)　　𓈒　　[prnsᵖᵃᵍᵉ](https://en.pronouns.page/@arrwz)
